@@ -1,5 +1,7 @@
 ## Bing Wallpaper
 
+2025-02-23 | [The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg)
+
 2025-02-21 | [Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg)
 
 2025-02-20 | [European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg)
