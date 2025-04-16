@@ -1,5 +1,7 @@
 ## Bing Wallpaper
 
+2025-04-16 | [Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg)
+
 2025-04-14 | [Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg)
 
 2025-04-13 | [View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_UHD.jpg)
